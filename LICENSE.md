@@ -1,4 +1,4 @@
-#  
+#  break a brainrot egg Scripts custom is the best break a brainrot egg Script, featuring auto-collect and private server access. Safe and powerful for
 
 
 
